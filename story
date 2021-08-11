@@ -1,0 +1,1 @@
+Hi. I’m Dino, the family dog. I help keep people safe, especially on the roads. Take a look at my diary to see what I did last week.
